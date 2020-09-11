@@ -1,0 +1,2 @@
+# Versijuvadiba
+darbs ar perezentāciju
